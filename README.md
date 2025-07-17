@@ -51,7 +51,7 @@ file:///C:/Users/Nagameenashree/OneDrive/Desktop/visually%20imapaired/Smart%20Gl
 
 - Nagameenashree
 - Sashmitha
-- Priyadharshini
+- Priyadharshini(https://github.com/Priyadharshini2409?tab=projects)
 
 
 
